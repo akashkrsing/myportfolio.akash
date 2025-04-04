@@ -1,5 +1,5 @@
 # myportfolio.akash
-Good morning , My name is Akash Kumar Singh, and I’m delighted to be here today. I
+My name is Akash Kumar Singh, and I’m delighted to be here today. I
 am currently pursuing my B.Tech in Computer Science Engineering from Arya College
 of Engineering & IT, Jaipur, with a strong academic record, holding a 9.60 CGPA. My
 academic journey has been marked by consistent excellence, having scored 94.40% in
