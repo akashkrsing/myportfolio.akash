@@ -35,3 +35,7 @@ critically, coupled with my dedication to continuous learning, makes me confiden
 can contribute positively to your organization.
 Thank you for this opportunity! I look forward to discussing how my skills and
 enthusiasm can align with your team’s goals.
+
+
+Contact details----
+gmail--singhakash19960@gmail.com
