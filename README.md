@@ -34,4 +34,4 @@ am always eager to learn, innovate, and take on new challenges. My ability to th
 critically, coupled with my dedication to continuous learning, makes me confident that I
 can contribute positively to your organization.
 Thank you for this opportunity! I look forward to discussing how my skills and
-enthusiasm can align with your team’s goals
+enthusiasm can align with your team’s goals.
